@@ -7,4 +7,4 @@
 - 💬 Ask me about backend stuff 
 - 📫 How to reach me: email -> oukhellou.fst@uhp.ac.ma
 - 😄 Pronouns: He/his
-- ⚡ Fun fact: I spend almost 12 hours reading and searching 
+- ⚡ Fun fact: I spend almost 8 hours reading and searching 
